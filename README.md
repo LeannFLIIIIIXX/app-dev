@@ -13,4 +13,4 @@ Lucifer Morningstar, the Devil himself, has left Hell and is now running a night
 
 **You can watch it on:** Netflix
 
-**Check out the trailer here:** [link to trailer]
+**Check out the trailer here:** [https://ph.video.search.yahoo.com/search/video;_ylt=AwrPpnmnGjhnOgIAnJCzRwx.;_ylu=Y29sbwNzZzMEcG9zAzEEdnRpZAMEc2VjA3Nj?type=E210PH91215G0&p=lucifer+trailer&fr=mcafee&turl=https%3A%2F%2Ftse1.mm.bing.net%2Fth%3Fid%3DOVP.a-StGBeGp8v7gkEnLowofQHgFo%26pid%3DApi%26w%3D296%26h%3D156%26c%3D7%26p%3D0&rurl=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3DKRQb74Cr9N0&tit=Lucifer+%7C+Season+4+Official+Trailer+%5BHD%5D+%7C+Netflix&pos=01&vid=d6daab533b9676c1eb9c24c95a795b92&sigr=qTdrTJr9rdRg&sigt=b4MzEnMhY4m5&sigi=hKjpdmO4LQX2]
